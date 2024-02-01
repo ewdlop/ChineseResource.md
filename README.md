@@ -1,0 +1,1 @@
+# ChineseResource.md
