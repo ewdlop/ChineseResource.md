@@ -1,4 +1,4 @@
-# ChineseLearningResource.md
+# LearningResourceInChinese.md
 
 https://gitee.com/explore
 
