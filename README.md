@@ -17,3 +17,5 @@ https://www.bing.com/search?pglt=171&q=開源中國&cvid=169c5f5188c949d2ac17afb
 Immersive Translate: Web Page&PDF Translation:
 
 https://microsoftedge.microsoft.com/addons/detail/immersive-translate-web-/amkbmndfnliijdhojkpoglbnaaahippg
+
+[昇腾CANN训练营](https://www.youtube.com/watch?v=Sgo17hNF9aw)
