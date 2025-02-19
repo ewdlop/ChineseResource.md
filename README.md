@@ -19,3 +19,6 @@ Immersive Translate: Web Page&PDF Translation:
 https://microsoftedge.microsoft.com/addons/detail/immersive-translate-web-/amkbmndfnliijdhojkpoglbnaaahippg
 
 [昇腾CANN训练营](https://www.youtube.com/watch?v=Sgo17hNF9aw)
+
+## VPN
+https://us.cybernews.com/lp/best-vpn-cn/?campaignId=20400605032&adgroupId=166117167096&adId=726225742772&targetId=kwd-3434782810&device=c&gunique=CjwKCAiAn9a9BhBtEiwAbKg6flsjn8bRglBft1gs29Sh_N807emkHaubGo661m5anQlOGputWqWJfhoCMhYQAvD_BwE&gad_source=1&gclid=CjwKCAiAn9a9BhBtEiwAbKg6flsjn8bRglBft1gs29Sh_N807emkHaubGo661m5anQlOGputWqWJfhoCMhYQAvD_BwE
