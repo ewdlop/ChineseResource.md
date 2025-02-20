@@ -21,4 +21,9 @@ https://microsoftedge.microsoft.com/addons/detail/immersive-translate-web-/amkbm
 [昇腾CANN训练营](https://www.youtube.com/watch?v=Sgo17hNF9aw)
 
 ## VPN
-https://us.cybernews.com/lp/best-vpn-cn/?campaignId=20400605032&adgroupId=166117167096&adId=726225742772&targetId=kwd-3434782810&device=c&gunique=CjwKCAiAn9a9BhBtEiwAbKg6flsjn8bRglBft1gs29Sh_N807emkHaubGo661m5anQlOGputWqWJfhoCMhYQAvD_BwE&gad_source=1&gclid=CjwKCAiAn9a9BhBtEiwAbKg6flsjn8bRglBft1gs29Sh_N807emkHaubGo661m5anQlOGputWqWJfhoCMhYQAvD_BwE
+
+https://us.cybernews.com/lp/best-vpn-cn/?campaignId=20400605032&adgroupId=166117167096&adId=726225742772&targetId=kwd-3434782810&device=c&gunique=CjwKCAiAn9a9BhBtEiwAbKg6flsjn8bRglBft1gs29Sh_N807emkHaubGo661m5anQlOGputWqWJfhoCMhYQAvD_BwE&gad_source=1&gclid=CjwKCAiAn9a9BhBtEiwAbKg6flsjn8bRglBft1gs29Sh_N807emkHaubGo661m5anQlOGputWqWJfhoCMhYQAvD_22 黑黑翕ChroNous发布了一篇小红书笔记，快来看吧！ 😆 APoV8JFx96QFjcV 😆 http://xhslink.com/a/L30U9MSNNre6，复制本条信息，打开【小红书】App查看精彩内容！
+
+##
+
+51 黑黑翕ChroNous发布了一篇小红书笔记，快来看吧！ 😆 7qxPCMaIAxRTONE 😆 (http://xhslink.com/a/hE74yV4P9se6)，复制本条信息，打开【小红书】App查看精彩内容！
